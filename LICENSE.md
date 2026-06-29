@@ -1,4 +1,4 @@
-# 
+# Profissional DaVinci Resolve predefinições para Mac OS | Automático DaVinci Resolve predefinições para PC Windows. Com estabilização de vídeo e agendamento de transmissão — otimizado para máximo desempenho em cada plataforma.
 
 
 
